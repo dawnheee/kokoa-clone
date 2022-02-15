@@ -1,4 +1,3 @@
 # kokoa clone
 
-seohee
-
+sherlockee is so cute
